@@ -105,17 +105,24 @@ Atlanta United FC
 https://www.pngkey.com/png/detail/69-692647_atlanta-drawing-logo-for-free-download-on-mbtskoudsalg.png
 
 
-Al Khaleej ⚽ 
+Al Khaleej 
+
 https://upload.wikimedia.org/wikipedia/en/thumb/3/32/Al-Khaleej_FC_Logo.svg/1200px-Al-Khaleej_FC_Logo.svg.png
-Al Ahli ⚽
+Al Ahli 
+
 https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRTRd_MotC1BQcIKPIYDRTQSA8Tg4fEEpHw_vgzsE52dRPycu85rlK_X29rNTsUwlLQyWs&usqp=CAU
-Al Hilal ⚽
+Al Hilal 
+
 https://upload.wikimedia.org/wikipedia/commons/thumb/2/22/Al-Hilal-Logo.png/2048px-Al-Hilal-Logo.png
-Al Fayha ⚽
+Al Fayha 
+
 https://static.wikia.nocookie.net/fifa/images/b/b5/AlFayha.png/revision/latest?cb=20170924181735
-Al Shabab ⚽
+Al Shabab 
+
 https://e7.pngegg.com/pngimages/497/579/png-clipart-al-shabab-fc-saudi-arabia-al-hilal-fc-logo-football-football-text-team-thumbnail.png
-Al Nassr ⚽
+
+Al Nassr 
+
 https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ7qN0pXoSM-4UXpgbvvv-s6ohvPNpqATpirVXUEWIuOXQBmWJ5vgYGOPdov9np1oUjyno&usqp=CAU
 
 Al Okhdood

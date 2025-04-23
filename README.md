@@ -815,3 +815,48 @@ https://upload.wikimedia.org/wikipedia/en/1/12/Deportiva_Minera.png
 Accrington Stanley
 
 https://seeklogo.com/images/A/accrington-stanley-fc-logo-E0BBB3F415-seeklogo.com.png
+
+
+NK Celje
+
+https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQFD2xFDNIM58a3GEAqFKtK1vJyYUs3S6wSX8-V2NjTng5bLBTY3LIlo_DXk95JOoeinI0&usqp=CAU
+
+Jagiellonia Bialystok
+
+https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcT2JmxDueQ_XNskpucspjR1xh1K7pZpB_geGA&s
+
+Getafe
+
+https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS4qp5YsAow1eO4wOeNEE6yoZdkv51VUJLQBg&s
+
+Celta Vigo
+
+https://logowik.com/content/uploads/images/rc-celta-de-vigo6992.jpg
+
+Las Palmas
+
+https://thumbs.dreamstime.com/b/flag-las-palmas-de-gran-canaria-canary-islands-flag-las-palmas-de-gran-canaria-city-capital-gran-canaria-168105655.jpg
+
+Hellas Verona
+
+https://1000logos.net/wp-content/uploads/2021/02/Hellas-Verona-logo.jpg
+
+Le Havre AC
+
+https://static.vecteezy.com/system/resources/previews/028/100/548/non_2x/le-havre-ac-club-logo-symbol-black-ligue-1-football-french-abstract-design-illustration-free-vector.jpg
+
+Real Sociedad
+
+https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR4gQ_tzq9LKtXdn3PHxb02SVEIIoXkr5Gm9A&s
+
+Girona
+
+https://static.vecteezy.com/system/resources/previews/027/011/542/non_2x/girona-club-logo-symbol-la-liga-spain-football-abstract-design-illustration-free-vector.jpg
+
+Cagliari
+
+https://logowik.com/content/uploads/images/cagliari5797.jpg
+
+Nantes
+
+https://teamfanfares.com/wp-content/uploads/2024/11/FC-Nantes-Logo-JPG--1024x751.webp
